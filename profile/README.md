@@ -3,7 +3,7 @@
 <h3>🌈Art is colorful - Art is Pride🌈</h3>
 <br>
 👩‍ You can find us on: Twitter: @rds_ev | Instagram: @rds_ev | Tiktok: @rds_ev | Facebook: @rds_ev | Webseite: https://rdsev.org <br>
-🍿 Funfacts: Members: 22 | Projects: 2 | Performances: 5 | Lokations: 2 | Performances in hours: 1 <br>
+🍿 Funfacts: Members: 22 | Projects: 2 | Performances: 5 | Locations: 2 | Performances in hours: 1 <br>
 🍿 More information: https://rdsev.org/der-verein/projekte/ (German only) 
  
 
